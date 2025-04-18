@@ -1,2 +1,2 @@
-# RACHEL18ANN.github.io
+# RACHELANN.github.io
 MY PERSONAL WEBSITE
